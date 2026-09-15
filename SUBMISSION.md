@@ -2,7 +2,7 @@
 
 ## Candidate
 
-**Name:** Jeje
+**Name:** Jihan Salsabilah
 
 ---
 
